@@ -1,5 +1,5 @@
 # 💫 About Me:
-☠ I’m Dhul-Qarnayn Ibn Tawhid Abdullah.<br>🔭 I’m currently working on some private projects.<br>🌱 I’m currently learning Ethical Hacking.<br>💬 Ask me about Islam.<br>⚡ Fun fact : I hate India and Israel
+☠ I’m Dhul-Qarnayn Ibn Tawhid Abdullah.<br>🔭 I’m currently working on some private projects.<br>🌱 I’m currently learning Ethical Hacking.<br>💬 Ask me about Islam.<br>⚡ Fun fact : I hate India and Israel.
 
 
 ## 🌐 Socials:
